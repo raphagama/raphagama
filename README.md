@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on web projetcs.
 - 📫 How to reach me:
     * E-mail: raphaelgama@outlook.com
-    * [Linkedin](https://www.linkedin.com/in/raphael-gama-a804a4112)
+    * [Linkedin](https://www.linkedin.com/in/rapha_gama)
     * [Twitter](https://twitter.com/rapha_gama)
     * [Instagram](https://instagram.com/rapha_gama)
 
